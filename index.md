@@ -8,6 +8,9 @@ Homelander ist ein fast unbesiegbarer Superheld, der Anführer der Seven und ein
 -unzerstörbar
 -unberechenbar
 
+> You are dark, and I kind of like it.
+
+
 
 
 
