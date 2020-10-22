@@ -11,6 +11,10 @@ Homelander ist ein fast unbesiegbarer Superheld, der Anführer der Seven und ein
 > You are dark, and I kind of like it.
 
 
+<img src= "https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.zimbio.com%2F%27The%2BBoys%27%2BMost%2BShocking%2BSeason%2B1%2BMoments&psig=AOvVaw0J3Y6miedS-q2MvpWJXCBv&ust=1603467388138000&source=images&cd=vfe&ved=0CAIQjRxqFwoTCJDMm9zDyOwCFQAAAAAdAAAAABAD" />
+
+
+
 
 
 
